@@ -1,0 +1,3 @@
+A Red Velvet Cake is instantly recognizable with its bright red color offset by a white Cream Cheese Frosting. There are many theories as to its origin. Some say it originated in the South, others say it originated in the North. All we really know for sure is that it has been a favorite for decades.
+
+It is a light chocolate cake with lots of addictive cream cheese frosting and a crown of buttercream roses. This cake is moist but so light and fluffy, it really is the perfect match for all that delicious frosting! You can make this without any food coloring and it will be a light tan color, not quite red, but it will be eaten just as quickly!
